@@ -8,3 +8,4 @@
   </a>
 </div>
 
+- Esse mesmo vídeo também está disponível no [Drive](https://drive.google.com/file/d/1NwnSglmVss8l0OEZzWRe967R3Kh8LjeN/view?usp=sharing)
